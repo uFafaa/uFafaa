@@ -5,7 +5,7 @@
 
 - Aprendendo também: **JavaScript, HTML, C++ e Python** <br><br>
    . + . * . ☆   . . * ✮ . . * ✧ + . ✭ <br><br>
-![download](https://github.com/user-attachments/assets/cc9bc18a-f3f2-48b2-a3a6-5044dbef6617)
+![download](https://github.com/user-attachments/assets/cc9bc18a-f3f2-48b2-a3a6-5044dbef6617)  <br><br>
    . + . * . ☆   . . * ✮ . . * ✧ + . ✭<br><br>
 
 
