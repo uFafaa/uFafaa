@@ -5,7 +5,8 @@
 
 - Aprendendo também: **JavaScript, HTML, C++ e Python**
 
-  ![O Castelo Animado](https://github.com/user-attachments/assets/83c1a549-b254-45db-9ab2-9d25b53916fb)
+![download](https://github.com/user-attachments/assets/cc9bc18a-f3f2-48b2-a3a6-5044dbef6617)
+
 
 
 <h3 align="left">Connect with me:</h3>
